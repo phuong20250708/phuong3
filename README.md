@@ -10,4 +10,4 @@
 
 本站提供海量高清影视资源，涵盖电影、纪录片、综艺等多种类型，支持多平台流畅播放。我们每天更新，确保您第一时间获得最新片源，满足多样化的观影需求。无需注册，点击即播，致力于为您提供便捷的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/phuong20250708/phuong3 ）</span>
